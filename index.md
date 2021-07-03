@@ -1,5 +1,5 @@
 Privacy Policy of iwin
-Privacy Policy Last Modified on Jul 7, 2021
+Privacy Policy Last Modified on Jul 1, 2021
 
 We value your privacy. This privacy privacy policy is intended to clearly inform you of the following:
 1. What information we collect
